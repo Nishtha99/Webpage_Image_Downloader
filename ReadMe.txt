@@ -1,5 +1,5 @@
 ##########    NOTE   #############
-This program is only for personal.
+This program is only for personal use.
 This program should not be used on any kind of social site , using this program on any social site is a Cyber Crime 
 and you may fall into cases. So please Do Not misuse this program.
 
